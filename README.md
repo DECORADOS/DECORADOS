@@ -4,5 +4,4 @@ $$ \Huge \color{#e890cf} \text{𓋫།⠀⠀𓈒 vᥱrᥒ'𝒔⠀𝗥𝗘𝗔�
 
 ![](https://files.catbox.moe/sbfw39.png)
 
-$$ \Huge \color{#e980cf} \text{𓋫།⠀⠀𓈒⠀𝗗𝗡𝗜} $$
-$$  \color{#e980cf} \text{ITS STILL WIP BOO} $$
+$$  \color{#e980cf} \text{i usually would appear with unicorn wars or decorado ponies} $$

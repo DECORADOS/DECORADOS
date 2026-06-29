@@ -4,9 +4,8 @@ $$ \Huge \color{#e890cf} \text{𓋫།⠀⠀𓈒 ⠀⠀} $$
 
 ![](https://files.catbox.moe/sbfw39.png)
 
-$${\\color{#e890cf}\\text{i usually appear with unicorn wars/decorado cos}}$$
+$${\color{#e890cf}i⠀usually⠀appear⠀with⠀unicorn⠀wars/decorado⠀cos}$$
 
-$${\\color{#e890cf}\\text{c*h always encouraged even if i put dni/iwc/iwec on my name :3}}$$
+$${\color{#e890cf}c+h⠀always⠀encouraged⠀even⠀if⠀i⠀put⠀dni/iwc/iwec⠀on⠀my⠀name⠀:3}$$
 
-$${\\color{#e890cf}\\text{i am kind of avoidant person so SORRY if i suddenly avoid or just leave you hanging because i'm too scared if it's going to be such an awkward convo}}$$
 

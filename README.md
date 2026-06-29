@@ -4,4 +4,6 @@ $$ \Huge \color{#e890cf} \text{𓋫།⠀⠀𓈒 vᥱrᥒ'𝒔⠀𝗥𝗘𝗔�
 
 ![](https://files.catbox.moe/sbfw39.png)
 
-$$  \color{#e980cf} \text{i usually would appear with unicorn wars or decorado ponies} $$
+$${\\color{#e890cf}\\text{i usually appear with unicorn wars/decorado cos}}$$
+$${\\color{#e890cf}\\text{c*h always encouraged even if i put dni/iwc/iwec on my name :3 }}$$
+
